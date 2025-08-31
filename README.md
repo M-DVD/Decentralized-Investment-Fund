@@ -1,0 +1,1 @@
+Esteesun proyecto de fondo de Prestaciones descentralizados con el fin de preservar los ahorros de los trabajadores con la inversión de ahorros en criptomonedas y la participaci{on en  mecanismos desaking.
